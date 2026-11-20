@@ -30,4 +30,4 @@ by Khawaja Muhammad Ali (Applied Economics Research Centre, University of Karach
 
 ## Contact
 
-Khawaja Muhammad Ali — khwajaali@aerc.edu.pk
+Khawaja Muhammad Ali — ali.zahidaz123@gmail.com
